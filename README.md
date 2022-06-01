@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gagnutties
+- 👀 I’m interested in Python, C, Javascript, HTML, CSS.
+- 🌱 I’m currently learning Javascript.
+- 💞️ I’m looking to collaborate on not sure yet.
+- 📫 How to reach me m3gam1ll1ona1r@gmail.com.
